@@ -1,1 +1,1 @@
-# rsschool-cv
+https://yauh-ask.github.io/rsschool-cv/
